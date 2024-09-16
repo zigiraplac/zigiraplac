@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @zigiraplac
+- 👋 Hi, I’m Placide ZIGIRA
 - 📫 How to reach me : zigiraplacide@gmail.com
 - 😄 Pronouns: He/him/his
 - Freshman at Bilkent
